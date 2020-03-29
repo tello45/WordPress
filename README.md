@@ -1,4 +1,4 @@
-<h1 align="center" >   ⭐    Ayoub ELkhaddari   || Maroun Benchiekh  ⭐</h1>
+<h1 align="center" >   ⭐    ABDESSAMAD TELLAT  || HAMZA ELBARMAKI  ⭐</h1>
 <p align="center"> 
   </p>
 
